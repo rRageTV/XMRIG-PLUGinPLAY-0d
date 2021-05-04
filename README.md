@@ -1,0 +1,1 @@
+# XMRIG-PLUGinPLAY-0d
